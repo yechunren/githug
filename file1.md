@@ -1,1 +1,1 @@
-mengri ulgy
+mengri beautiful
